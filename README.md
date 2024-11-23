@@ -26,11 +26,7 @@ Every donation, no matter the size, will allow me to continue fighting, covering
 
 
 Thank you for taking the time to listen to my story. Thank you for your solidarity. May God bless you and multiply every act of kindness you show towards my cause.
-
-
-
----
-
+https://gofund.me/d912632a
 
 Here are the details of my monthly expenses:
 
